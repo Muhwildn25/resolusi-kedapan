@@ -1,2 +1,2 @@
-# resolusi-kedapan
+# resolusi-kedepan
 sukses bersama
